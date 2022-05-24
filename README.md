@@ -1,1 +1,0 @@
-# XD-TQ.github.io
